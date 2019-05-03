@@ -1,0 +1,1 @@
+Serpihan kecil
